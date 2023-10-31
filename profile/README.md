@@ -1,4 +1,4 @@
-## 2023 카카오 X 한국관광공사 관광데이터 공모전 출품작 - ON;na
+## 2023 카카오 X 한국관광공사 관광데이터 공모전 장려상 수상작 - ON;na
 <img width="1000" alt="image" src="https://github.com/JjungminLee/JjungminLee/assets/85864699/48100780-0e96-4d16-a229-0b76333eb218">
 
 ### 🏖 기획의도  
